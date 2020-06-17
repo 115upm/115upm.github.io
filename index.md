@@ -10,3 +10,7 @@ Bruce complains to God that "He's the one that should be fired".
 * parttime God
 * little bit clumsy
 * nearly almighty
+
+## Bruce Almighty - Best Quote
+
+> He's the one that should be fired
