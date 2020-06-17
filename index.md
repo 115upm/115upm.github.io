@@ -11,4 +11,9 @@ Bruce complains to God that "He's the one that should be fired".
 * little bit clumsy
 * nearly almighty
 
+## Bruce Almighty - Best Quote
+
+> He's the one that should be fired
+
+
 <img src="https://musicart.xboxlive.com/6/cfbcb535-0000-0000-0000-000000000009/504/image.jpg?w=1400&h=1050&q=90&format=jpgL"/>
